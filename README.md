@@ -1,0 +1,4 @@
+# PROJECT-2-2.0
+
+ABRIR ESTE GOOGLE DOCS PARA ENTENDER RAZON DE LA CREACION DEL PROJECT 2 2.0
+https://docs.google.com/document/d/13W1Ko0Wgkn4HOYRKiI2vjdCNzIEsdxlwPwMNgNL1vRo/edit?usp=sharing
